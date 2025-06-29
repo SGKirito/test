@@ -1,4 +1,4 @@
 # test
 test
-ai waifu so
+ai waifu som
  [discord server](https://discord.gg/JWRy5yKVcc).  
