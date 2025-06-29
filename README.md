@@ -1,4 +1,4 @@
 # test
 test
-ai waifu somthi
+ai waifu somthin
  [discord server](https://discord.gg/JWRy5yKVcc).  
