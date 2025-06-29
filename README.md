@@ -1,4 +1,4 @@
 # test
 test
-ai wai
+ai waif
  [discord server](https://discord.gg/JWRy5yKVcc).  
