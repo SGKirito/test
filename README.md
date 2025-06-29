@@ -1,4 +1,4 @@
 # test
 test
-ai wa
+ai wai
  [discord server](https://discord.gg/JWRy5yKVcc).  
